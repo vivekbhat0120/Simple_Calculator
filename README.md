@@ -2,7 +2,7 @@
 
 CLICK HERE TO VISIT THE PAGE 👇
 
-https:
+https://vivekbhat0120.github.io/Simple_Calculator/
 
 CLICK HERE TO VISIT THE PAGE 👆
 
